@@ -6,7 +6,7 @@ Welcome to The Iron Yard! We are super excited to start class with all of you.
 
 We've put together a short list of things you should start reviewing before class starts.
 
-If you have any questions. Please email your instructor at anytime: [TBD](mailto:tbd@tbd.com)
+If you have any questions. Please email your instructor at anytime: [Jake.Boyles@TheIronYard.com](mailto:jake.boyles@theironyard.com)
 
 ## Prework
 
